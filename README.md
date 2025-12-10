@@ -2,9 +2,6 @@ Hi 👋, I'm Vijaya Kumar Reddy Bandi
 
 A passionate Data Analyst.
 
-coding
-pratiksha521
-
 📫 How to reach me bandivijayreddy222@gmail.com
 
 Connect with me:
